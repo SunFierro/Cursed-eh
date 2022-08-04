@@ -1,3 +1,3 @@
-# Fabric Example Mod
+# Cursed eh
 
 idk man cursed
